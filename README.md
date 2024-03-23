@@ -1,3 +1,0 @@
-# new-Git
-hnfnfgbn
-bsgnbgng
